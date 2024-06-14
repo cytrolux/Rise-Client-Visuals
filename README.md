@@ -4,7 +4,9 @@
 
 
 My #1 Visuals Of Rise Client - https://workupload.com/file/d2HzdTREuVY
+
 Image of Visuals - https://insane.rip/ai92jovc.png
+
 The Password Is Rise
 
 
